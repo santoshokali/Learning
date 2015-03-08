@@ -1,0 +1,2 @@
+# Learning
+Start ups thoughts
